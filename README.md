@@ -2,9 +2,9 @@
 ༺❤️༒🦁PRAMESH LION BOT🦁༒❤️༻
 ##pramesh lion bot ##
 
-
-</details>
-
+<p align="center"> 
+<b>༺═════════[👸]══════════༻</b>
+</p>
 <p align="center">
-<img src="https://media.tenor.com/n_cAJ7As7VIAAAAM/lion-king-lion.gif" alt="nz" width="700"/>
+<img src="https://i.ibb.co/CMCNByx/Picsart-22-07-03-15-45-00-698.jpg" width="300" height="300"/>
 </p>
